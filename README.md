@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **bishnoiravindra344@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1RuAtTe0ZWZ4X_aJKvY62uexuF-WVVHKm/view?usp=sharing](https://drive.google.com/file/d/1RuAtTe0ZWZ4X_aJKvY62uexuF-WVVHKm/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1RuAtTe0ZWZ4X_aJKvY62uexuF-WVVHKm/view?usp=sharing](https://drive.google.com/file/d/1wUq5vTI_UapqDdx9eE1VWN6OCfw91X67/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
